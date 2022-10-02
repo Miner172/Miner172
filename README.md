@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Miner172
+- 👋 Hi, I’m @Miner172 / Roman
 - 👀 I’m interested in C# and Unity
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me write to my mail
+- 📫 How to reach me write to my mail - roma-rubalko@mail.ru
+- Im 16 years old

@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me write to my mail - roma-rubalko@mail.ru
-- Im 16 years old
+- Im 17 years old
